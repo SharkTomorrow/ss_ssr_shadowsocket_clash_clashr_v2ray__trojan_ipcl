@@ -75,6 +75,10 @@ https://youyun222.net/auth/register?code=3hQ2
 
 https://suying222.net/auth/register?code=Rpe0
 
+5）1200GB使用流量，20个在线客户端，解锁Netflix、Hulu，国内中转节点，IPLC专线节点，月最低9.9 有日租体验版，一天仅需1.9，可以先尝试一番
+
+https://www.vpn200.net/auth/register?code=CuPjTxxR
+
 ************************************************** 初 级 机 场 区 *******************************************************
 
 分享一些可以很实用的网站，助力遨游海外：
