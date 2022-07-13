@@ -21,11 +21,11 @@ https://fastlink-aff.com/auth/register?code=JW3m
 
 4）高端老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，实打实流量机场。
 
-https://bywave.art/aff.php?aff=9357
+https://console.bywa.art/aff.php?aff=9357
 
 5)高级专线大机场，原生IP，节点包括，港，台，美，日，新，韩，印，菲，加拿大，阿根廷，英，法，德，意大利，荷兰，俄罗斯，土耳其，澳大利亚，埃及，新西兰，南非等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速，当地流媒体全解锁。
 
-https://gatern.com/aff.php?aff=2437
+https://shuttle.gt-in.com/aff.php?aff=2437
 
 ************************************************** 高 级 机 场 区 ******************************************************* ************************************************** 中 级 机 场 区 *******************************************************
 
@@ -74,7 +74,7 @@ https://youyun222.net/auth/register?code=3hQ2
 
 4）350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
 
-https://suying222.net/auth/register?code=Rpe0
+https://suying00.com/auth/register?code=Rpe0
 
 5）1200GB使用流量，20个在线客户端，解锁Netflix、Hulu，国内中转节点，IPLC专线节点，月最低9.9 有日租体验版，一天仅需1.9，可以先尝试一番
 
