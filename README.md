@@ -19,9 +19,9 @@ https://coco188.shop/user/register?code=gY9J
 
 https://fastlink-aff.com/auth/register?code=JW3m
 
-4）（已失效）高端老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，实打实流量机场。
+4）注册完成即可免费体验 HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，美，日，新加坡，韩国，英国，德国，法国，印度，泰国等，流媒体解锁。月最低 8.8元。
 
-https://console.bywa.art/aff.php?aff=9357
+https://tapfog.com/#/register?code=TCEXhxI9
 
 5)高级专线大机场，原生IP，节点包括，港，台，美，日，新，韩，印，菲，加拿大，阿根廷，英，法，德，意大利，荷兰，俄罗斯，土耳其，澳大利亚，埃及，新西兰，南非等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速，当地流媒体全解锁。
 
@@ -36,9 +36,9 @@ https://shuttle.gt-in.com/aff.php?aff=2437
 https://mxwljsq.top/auth/register?code=z6ce
 
 
-2）（已下架）全中转高速BGP G口高端机场，有专属 emby 服务器可看片，IPLC/IEPL专线承载，可保证无Qos.节点包括港，台，美，日，新加坡，泰国，英国，韩国，俄罗斯，印度，越南，土耳其。原生IP，当地流媒体解锁，带宽跑起来 8K 无压力。
+2）高端老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，流媒体解锁，实打实流量机场，仅需2元即可购买10G永久流量包。
 
-https://portal.siseed.io/#/register?code=XjGKDyQ8
+https://befweb.net/#/register?code=t5WWC6t5
 
 3）全大陆BGP专线线路，三网优化高端机场，SS协议加密传输，月最低 8 块钱，节点包括，港，台，日，新，美，德，意大利，英，荷兰，瑞士，以色列。流媒体解锁，稳定高速。
 
@@ -53,9 +53,9 @@ https://v4speed.com/#/register?code=o7rMiHdj
 
 所谓初级的含义：绝大多数情况下，可以正常使用，出现问题会及时解决，最重要的是：价格便宜。
 
-1)（已失效）高质量v2ray大机场，注册即可白嫖三天，节点包括，港，台，美，日，新，韩，英国。流媒体解锁，畅游海外。月租最低 2 块。
+1)免费体验优惠码 free，注册即可白嫖三天 高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁。
 
-https://www.flyss.xyz/#/register?code=yC1OdB1q
+https://speedcat-aff.com/auth/register?code=TZRd
 
 2）原生国际大机场，节点包括，港，台，美，日，韩，新加坡，加拿大，印度，印度尼西亚，土耳其，墨西哥，德国，法国，澳大利，瑞典，英国，荷兰，菲律宾等。流媒体全解锁，高峰时期流畅不卡顿，特殊时期稳定不断流，注册后有公益节点供用户白嫖，另外新用户注册即可享受八折优惠。
 
