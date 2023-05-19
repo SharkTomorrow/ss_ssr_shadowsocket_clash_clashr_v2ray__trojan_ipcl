@@ -50,9 +50,9 @@ https://speedcat-aff.com/auth/register?code=TZRd
 
 https://jike391.com/auth/register?code=8kiY
 
-3）三网优质线路高速稳定大机场，Azure Oracle 深度合作伙伴,稳定流媒体全解锁，节点包括，港，台，日，新加坡，美，俄罗斯，印度，韩，德，法，阿联酋，意大利，加拿大，沙特，澳大利亚，荷兰，以色列，西班牙，瑞士，英，瑞典，智利，巴西，土耳其，阿根廷，南非，**季付低至3元，且同时拥有每月100G大流量，也有5元100G一次性永久流量包套餐，相当优惠。**
+3）三网优质线路高速稳定大机场，Azure Oracle 深度合作伙伴,稳定流媒体全解锁，节点包括，港，台，日，新加坡，美，俄罗斯，印度，韩，德，法，阿联酋，意大利，加拿大，沙特，澳大利亚，荷兰，以色列，西班牙，瑞士，英，瑞典，智利，巴西，土耳其，阿根廷，南非，**月付低至9元，且同时拥有350G大流量相当优惠。**
 
-https://www.efcloud.net/#/register?code=kte30YEi
+https://invite.efshop.cc/#/register?code=kte30YEi
 
 4）350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，***月最低19.9。***
 
