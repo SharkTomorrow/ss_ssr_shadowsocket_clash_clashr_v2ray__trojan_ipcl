@@ -51,7 +51,7 @@ https://dash.996cloud.top/#/register?code=rsFPPHnq
 
 2）高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁。
 
-https://speedcat-aff.com/auth/register?code=TZRd
+https://speedcat-aff.com/auth/register?code=wEnH
 
 3）原生国际大机场，节点包括，港，台，美，日，韩，新加坡，加拿大，印度，印度尼西亚，土耳其，墨西哥，德国，法国，澳大利，瑞典，英国，荷兰，菲律宾等。流媒体全解锁，高峰时期流畅不卡顿，特殊时期稳定不断流，注册后有公益节点供用户白嫖，另外***新用户注册即可享受八折优惠。***
 
