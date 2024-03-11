@@ -56,7 +56,7 @@ https://speedcat-aff.com/auth/register?code=wEnH
 
 3）原生国际大机场，节点包括，港，台，美，日，韩，新加坡，加拿大，印度，印度尼西亚，土耳其，墨西哥，德国，法国，澳大利，瑞典，英国，荷兰，菲律宾等。流媒体全解锁，高峰时期流畅不卡顿，特殊时期稳定不断流，注册后有公益节点供用户白嫖，另外***新用户注册即可享受八折优惠。***
 
-https://jike48.xyz/auth/register?code=8kiY
+https://jikeq87.xyz/auth/register?code=8kiY
 
 4）三网优质线路高速稳定大机场，Azure Oracle 深度合作伙伴,稳定流媒体全解锁，节点包括，港，台，日，新加坡，美，俄罗斯，印度，韩，德，法，阿联酋，意大利，加拿大，沙特，澳大利亚，荷兰，以色列，西班牙，瑞士，英，瑞典，智利，巴西，土耳其，阿根廷，南非，**月付低至10元，且同时拥有200G大流量相当优惠。**
 
@@ -64,7 +64,7 @@ https://www.easyfastcloud.com/#/register?code=kte30YEi
 
 5）350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，***月最低19.9。***
 
-https://suying00.com/auth/register?code=Rpe0
+https://sy7770.com/auth/register?code=Rpe0
 
 ************************************************** 初 级 机 场 区 *******************************************************
 
