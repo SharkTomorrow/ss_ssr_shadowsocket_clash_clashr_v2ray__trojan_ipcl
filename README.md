@@ -53,7 +53,7 @@ https://dash.996cloud.top/#/register?code=rsFPPHnq
 
 https://xinzhilian.xyz/#/register?code=7wOIOjnh
 
-3）G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至每月 8 块以下.**新用户7.8折优惠码：m78-22off，永久有效**
+3）G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至**每月 8 块以下**，**新用户7.8折优惠码：m78-22off，永久有效**
 
 https://m78star.cloud/#/register?code=FBpboMz4
 
