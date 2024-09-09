@@ -32,9 +32,9 @@ https://shuttle.gt-all.com/aff.php?aff=2437
 
 https://reborn.kaochang.ltd/#/register?code=dx2i5cif
 
-2）全大陆BGP专线线路，三网优化高端机场，SS协议加密传输，***月最低 10 块钱***，节点包括，港，台，日，新，美，德，意大利，英，荷兰，瑞士，以色列。流媒体解锁，稳定高速。
+2）VLESS REALITY 协议高质量直连大机场，节点包括港，日，新加坡，美国，台湾，德国，英国，澳大利亚，尼日利亚等，节点倍率低，常见 1 倍率，还有0.8，0.5，0.3，甚至 0 倍率节点可免费白嫖。Disney+，Netflix，Dazn，Hulu等流媒体全解锁，支持Chatgpt。套餐价格低至年付15元，每月50G。性价比极高，非常适合预算较低的童鞋
 
-https://api.yuansu.uk/v1/guest/i/2pEZT8J0
+https://www.ctc.run/#/register?code=JL5JdBdM
 
 3）100+节点高端稳定大机场，含月付，也有“流量包”计费，不限时间，不限设备，非月付年付，用多少算多少，可一直用，直到用完为止。节点包括，港，台，美，日，新加坡，土耳其等。**注册即可免费试用三天**
 
