@@ -31,9 +31,9 @@ https://shuttle.gt-all.com/aff.php?aff=2437
 
 https://reborn.kaochang.ltd/#/register?code=dx2i5cif
 
-2）VLESS REALITY 协议高质量直连大机场，节点包括港，日，新加坡，美国，台湾，德国，英国，澳大利亚，尼日利亚等，节点倍率低，常见 1 倍率，还有0.8，0.5，0.3，甚至 0 倍率节点可免费白嫖。Disney+，Netflix，Dazn，Hulu等流媒体全解锁，支持Chatgpt。套餐价格低至年付15元，每月50G。性价比极高，非常适合预算较低的童鞋
+2） SS协议的高端专线机场，三网IEPL专线接入和低倍率国内中转线路，可用总带宽超10G。流媒体Netflix，DIsney+等都解锁，支持chatgpt。港、台、日、新、美、 越南、泰国、马来西亚、 澳大利亚、英国、芬兰、加拿大、乌克兰、土耳其、罗马尼亚、 巴基斯坦等主流地区落地，不限制设备数和网络速度。中转计划提供中转+广移IEPL，专线计划提供三网IEPL+低倍率中转+沪日IPLC线路。节点低倍率低至0.5倍。高峰期4K流畅，8K不卡。月最低15/月，100G大流量
 
-https://www.ctc.run/#/register?code=JL5JdBdM
+https://cloud.halo.do/#/auth/signup;referral=tKEvsIWT
 
 3）100+节点高端稳定大机场，含月付，也有“流量包”计费，不限时间，不限设备，非月付年付，用多少算多少，可一直用，直到用完为止。节点包括，港，台，美，日，新加坡，土耳其等。**注册即可免费试用三天**
 
